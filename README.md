@@ -1,2 +1,2 @@
 # HFAD
-working on Africa's future health practises and education
+Hope For Africa's future Development on medical health practises and education
